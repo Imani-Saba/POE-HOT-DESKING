@@ -1,0 +1,1 @@
+POST OCCUPANCY EVALUATION OF LOS ANGELEs OFFICE BUILDING: HOT DESKING AND EMPLOYEE PRODUCTIVITY<img width="609" height="63" alt="image" src="https://github.com/user-attachments/assets/bb2d8eb0-5c3c-4f93-85cd-2e9fc0be8694" />
